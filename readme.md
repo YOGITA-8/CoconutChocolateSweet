@@ -1,0 +1,1 @@
+This contrast of chocolate and coconut is perfect to give you a smile.  Keep in freezer and enjoy it whenever you want. Classic coconut chocolate sweet made with simple ingredients. So decadent, you just can't say no!
